@@ -2,4 +2,4 @@
 - 👀 I’m interested in UX/UI design
 - 🌱 I’m currently learning everything I can
 - 💞️ I’m looking to collaborate on nice projects if you need a designer 
-- 📫 How to reach me : enid@hotmail.com
+- 📫 How to reach me : enidhbc@gmail.com
