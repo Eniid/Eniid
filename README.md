@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Eniid
 - 👀 I’m a UX/UI designer
-- 🌱 I’m currently learning everything I can
+- 🌱 I’m trying to grow as a designer and a person 
 - 💞️ I’m looking to collaborate on nice projects if you need a designer 
 - 📫 How to reach me : enidhbc@gmail.com
